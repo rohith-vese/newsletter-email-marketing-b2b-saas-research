@@ -5,7 +5,7 @@ Role: Co-Founder, FullFunnel.io
 LinkedIn:
 https://www.linkedin.com/in/azinkevich
 
-## Content 1
+## Content
 
 Date: February 25, 2026
 
