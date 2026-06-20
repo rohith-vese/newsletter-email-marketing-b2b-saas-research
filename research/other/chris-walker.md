@@ -10,7 +10,7 @@ Chris Walker is widely recognized for his expertise in B2B demand generation, go
 
 ## Content
 
-Date: July 27, 2025
+Date: January 16, 2025
 
 Link:
 https://www.exitfive.com/podcast/the-future-of-gtm-and-sustainable-growth-with-chris-walker-ceo-at-passetto
