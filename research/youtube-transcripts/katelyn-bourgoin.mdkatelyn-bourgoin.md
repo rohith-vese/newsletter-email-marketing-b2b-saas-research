@@ -10,7 +10,7 @@ Katelyn Bourgoin specializes in buyer psychology and teaches marketers how to un
 
 ## Content 
 
-Date: May 14, 2022
+Date: May 15, 2022
 
 Link:
 https://www.youtube.com/watch?v=f9ilbu3_MFI
