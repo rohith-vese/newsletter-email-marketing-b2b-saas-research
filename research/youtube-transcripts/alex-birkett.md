@@ -5,7 +5,7 @@ Role: Co-founder Omniscient Digital (B2B Organic Growth Agency); Workato Growth 
 YouTube:
 https://beomniscient.com/podcast/
 
-## Content 1
+## Content
 
 Date: September 25, 2024
 
