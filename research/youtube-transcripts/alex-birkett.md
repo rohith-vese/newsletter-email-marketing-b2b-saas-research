@@ -7,7 +7,7 @@ https://beomniscient.com/podcast/
 
 ## Content
 
-Date: September 25, 2024
+Date: September 26, 2024
 
 Link:
 https://www.youtube.com/watch?v=DG4ScD5Fvtw
