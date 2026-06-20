@@ -5,7 +5,7 @@ Role: Lifecycle Email Consultant
 LinkedIn:
 https://www.linkedin.com/in/egarbugli
 
-## Content 1
+## Content
 
 Date: April 13, 2026
 
