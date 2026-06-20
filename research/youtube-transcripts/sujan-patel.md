@@ -8,7 +8,7 @@ https://www.linkedin.com/in/sujanpatel
 YouTube:
 https://www.youtube.com/watch?v=tek_aAQNHXc
 
-## Content 1
+## Content
 
 Date: December 3, 2020
 
