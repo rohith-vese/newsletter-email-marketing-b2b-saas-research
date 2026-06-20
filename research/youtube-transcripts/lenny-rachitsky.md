@@ -7,7 +7,7 @@ https://www.youtube.com/@LennysPodcast
 
 ## Content
 
-Date: March 13, 2026
+Date: March 12, 2026
 
 Link:
 https://youtu.be/HEqrvF7ztBE?si=3DL45yiaZ53DSA5k
