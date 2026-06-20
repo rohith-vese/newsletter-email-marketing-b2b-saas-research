@@ -10,7 +10,7 @@ https://www.youtube.com/watch?v=tek_aAQNHXc
 
 ## Content
 
-Date: December 3, 2020
+Date: December 4, 2020
 
 Link:
 https://www.youtube.com/watch?v=tek_aAQNHXc
