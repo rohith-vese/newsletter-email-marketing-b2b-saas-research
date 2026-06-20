@@ -5,7 +5,7 @@ Role: Author of Product-Led Onboarding
 LinkedIn:
 https://www.linkedin.com/in/ramlijohn
 
-## Content 1
+## Content
 
 Date: March 29, 2026
 
