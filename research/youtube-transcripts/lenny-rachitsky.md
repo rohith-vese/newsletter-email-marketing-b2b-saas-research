@@ -5,7 +5,7 @@ Role: Founder, Lenny's Newsletter (531K+ Substack subscribers); Ex-Airbnb PM
 YouTube:
 https://www.youtube.com/@LennysPodcast
 
-## Content 1
+## Content
 
 Date: March 13, 2026
 
